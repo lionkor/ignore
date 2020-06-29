@@ -39,11 +39,11 @@ Your superior is pressuring you to decipher this one, as the 1st of april might 
 The **fourth letter arrives**, with green paint once again. 
 
 ```
-nbcm wbuhhyf cmhn muzy. xcmvuhx.
+sym. nbcm wbuhhyf cmhn muzy. xcmvuhx.
 ```
 
 It's dated the 17th of March 1943.
 
 (decipher it now)
 
-Your superior comes to visit, he now wants to know how the decryption works, as a new mass of around 50 letters have been intercepted and a new task force will be formed. He also wants to know how you assert the threat level! What do you say?
+Your superior comes to visit, he now wants to know how the decryption works, as a new mass of around 50 letters have been intercepted and a new task force will be formed. He also wants to know how you assert the threat level (can you find out what they are talking about?). What do you say?
