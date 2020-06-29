@@ -23,7 +23,7 @@ It's dated 12th of March 1943.
 
 (decipher it now)
 
-The **third letter** looks different, it has red paint, your drunk assistant tells you that it doesn't matter. It says:
+The **third letter** looks different, it has red paint on it. It says:
 
 ```
 gxxkz xam gb lmxgkha rgt mnhut rkkhp hm xota xp eebp?
